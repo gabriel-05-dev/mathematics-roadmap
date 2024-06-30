@@ -1,6 +1,6 @@
 ### **Introduction to Philosophy (Optional but Recommended):**
 
-Think: A Compelling Introduction to Philosophy
+Think: A Compelling Introduction to Philosophy -- *Started* --
 Simon Blackburn
 
 Philosophy: A Text with Readings
